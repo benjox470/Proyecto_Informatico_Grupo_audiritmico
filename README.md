@@ -1,1 +1,1 @@
-*Carpetas de Campo - Grupo 7
+Carpetas de Campo - Grupo 7
